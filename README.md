@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mangeshsharma
-- 👀 I’m interested in finance
-- 🌱 I’m currently learning b.com
+- 👀 I’m interested in finance,Coding,Technology,Website Development and also Fitness(calisthenics)
+- 🌱 I’m currently Pusring  b.com with Specialization in Accounting & Finance
 - 💞️ I’m looking to collaborate on google
 - 📫 How to reach me @sharmamangesh06@gmail.com
 
